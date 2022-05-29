@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mina-gergess
+- 👨‍🎓 Welcome to my profile, I have been working in the field of web development and designs since 2020 until now. I am now working in the field of website development and designing advertisement posters on social networking sites at company Ovxar. Basically, I work on Freelancer sites, like Upwork - Mostaql. Also, I am the founder of company Ovxar  
