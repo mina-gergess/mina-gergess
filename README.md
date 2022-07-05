@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @mina-gergess
-- 👨‍🎓 Welcome to my profile, I have been working in the field of web development and designs since 2020 until now. I am now working in the field of website development and designing advertisement posters on social networking sites and graphic designs ، I work on the famous freelancing site and And in the platform enferad.
+- 👨‍🎓 Welcome to my profile, I have been working in the field of web development and designs since 2020 until now. I am now working in the field of website development and designing advertisement posters on social networking sites and graphic designs ، I work on the famous freelancing site.
